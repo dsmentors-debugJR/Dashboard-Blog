@@ -31,6 +31,12 @@ Establish counseling camps and stress relief initiatives for all age groups.
 Offer accessible mental health services and create safe spaces for people to speak up without judgment.
 
 **NCRB record as on 2022**
+
+
+![image](https://github.com/user-attachments/assets/fe03cf00-68a5-46c3-92f3-733752ec3b4d)
+
+
+
 Shocking news is till April 2022 based on NCRB records ( maharashtra reported highest number)
 which is consistently holding the first three place from 2001 to till 2022
 
