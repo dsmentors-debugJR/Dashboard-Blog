@@ -1,5 +1,9 @@
 **Rising Suicide Rates in India***
+
+
 ![image](https://github.com/user-attachments/assets/4c08dbff-a939-4115-aebc-949df6101f09)
+
+
 
 
 **Intent behind the choice of topic**
